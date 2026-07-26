@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**jeongtaeui/jeongtaeui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="left" style="display:flex; flex-direction:column; align-items:center;">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<table>
+<tr>
+<td>revamping dont mind this PLEASE</td>
+</tr>
+</table>
+
+<div>
+<img src="https://github.com/user-attachments/assets/78a22fe8-83ba-4bd1-a48c-a877b69db6e7" width="350" align="left"> 
+
+</div>
+
+</div>
+
