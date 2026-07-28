@@ -15,7 +15,7 @@
   
 ㅤㅤㅤㅤ**카스　˳　 kiᥲn ⠀﹒ ⠀15tᥱᥱn ⠀ㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ**
 
-ㅤㅤㅤһoᥕ could my day be ᑲᥲძ when іm ᥕі𝗍һ youu !!ㅤㅤㅤ
+ㅤһoᥕ could my day be ᑲᥲძ when іm ᥕі𝗍һ youu !!ㅤ🍺٩(ˊᗜˋ )وㅤㅤ
 
 </td>
 </tr>
