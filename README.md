@@ -13,9 +13,9 @@
 <tr>
 <td>
   
-ㅤㅤㅤ**카스　˳　 kiᥲn ⠀﹒ ⠀15tᥱᥱn ⠀ㅤ( ⸝⸝´꒳`⸝⸝)ㅤ**
+ㅤㅤㅤㅤ**카스　˳　 kiᥲn ⠀﹒ ⠀15tᥱᥱn ⠀ㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ**
 
-ㅤㅤһoᥕ could my day be ᑲᥲძ when іm ᥕі𝗍һ youu !!ㅤㅤ
+ㅤㅤㅤһoᥕ could my day be ᑲᥲძ when іm ᥕі𝗍һ youu !!ㅤㅤㅤ
 
 </td>
 </tr>
