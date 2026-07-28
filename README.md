@@ -2,26 +2,25 @@
 
 <div align="left">
 
-<img src="https://github.com/user-attachments/assets/80223882-bc6a-44f3-bfc0-fa967abcfc49" width="350" align="left">
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<br><br><br><br><br><br>
+<img src="https://github.com/user-attachments/assets/80223882-bc6a-44f3-bfc0-fa967abcfc49" width="390" align="left">
 
+<img src="https://github.com/user-attachments/assets/c2923ec4-a61a-42af-a5e8-1ea2ecacd36e" width="450" align="center">
+<br><br>
 <table>
 <tr>
 <td>
   
 ㅤㅤㅤㅤ**카스　˳　 kiᥲn ⠀﹒ ⠀15tᥱᥱn ⠀ㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ**
 
-ㅤㅤһoᥕ could my day be ᑲᥲძ when іm ᥕі𝗍һ youu !!ㅤ🍺ㅤ
+ㅤㅤһoᥕ could my day be ᑲᥲძ when іm ᥕі𝗍һ youu !!ㅤ🍻ㅤ
 
 </td>
 </tr>
 </table>
 
 </div>
-
-<img src="https://github.com/user-attachments/assets/78a22fe8-83ba-4bd1-a48c-a877b69db6e7" width="400" align="center">
-
+revamping all my links, will be here SOON ok please WAIT
+<br><br>
+<img src="https://github.com/user-attachments/assets/78a22fe8-83ba-4bd1-a48c-a877b69db6e7" width="410" align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
