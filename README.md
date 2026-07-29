@@ -20,7 +20,7 @@
 
 </div>
 
-ㅤrevamping all my links, will be here SOONㅤ<img src="https://komarev.com/ghpvc/?username=tigersprint&color=f2aa63&label=ㅤUNHRDOㅤ" alt="Centered Image">
+ㅤ[readㅤmyㅤrentry](https://rentry.co/iItae)ㅤ[signㅤmyㅤatabookㅤ!!](https://taeui.atabook.org/)ㅤ<img src="https://komarev.com/ghpvc/?username=tigersprint&color=f2aa63&label=ㅤUNHRDOㅤ" alt="Centered Image">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <br>
 <img src="https://github.com/user-attachments/assets/78a22fe8-83ba-4bd1-a48c-a877b69db6e7" width="410" align="center">
